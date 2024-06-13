@@ -1,4 +1,4 @@
-# Boas sou o Fábio, programar, neste momento focado em fivem!
+# Boas sou o Fábio, adoro programar, neste momento focado em fivem!
 
 
 <div align="center">
